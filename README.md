@@ -1,4 +1,4 @@
-![Frame 5](https://files.catbox.moe/3t8h29.png)
+![Frame 5](https://files.catbox.moe/a5elgt.png)
 ㅤㅤㅤмилле́н ᆢ she̲a̲nyㅤfvel sp4sx9sp6 ᅠᅠᅠᅠᅠᅠㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤ ᅠᅠ ᅠмейн фандомыㅤpjsk , bangdream , hsr , ddlc , cookie run , csm , squid game , milgram , nso , alnst etc
 ![Frame 5](https://files.catbox.moe/6t9jdw.jpg)
