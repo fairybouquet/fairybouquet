@@ -1,6 +1,10 @@
 ![Frame 5](https://files.catbox.moe/zpikzb.png)
 милле́н ᆢ оналюбые sp4 fvel 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᅠㅤㅤㅤ ㅤㅤㅤㅤ
+ 
+
+ ︎
 мейн фандомыㅤpjsk , bangdream , hsr , ddlc , cookie run , csm , squid game , milgram , nso , alnst etc
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤᅠㅤㅤㅤ ᅠᅠ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ 
+
+
 вы можете спокойно подсаживаться ко мне или шептать в личку :3 byf вся нужная информация обо мне есть в инфо ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ .ᅠᅠ𖹭
