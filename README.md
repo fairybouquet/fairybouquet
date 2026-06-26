@@ -1,10 +1,8 @@
 ![Frame 5](https://files.catbox.moe/zpikzb.png)
-милле́н ᆢ оналюбые sp4 fvel 
+<div align="center"> 
  
+- милле́н ᆢ оналюбые sp4 fvel 
 
- ︎
-мейн фандомыㅤpjsk , bangdream , hsr , ddlc , cookie run , csm , squid game , milgram , nso , alnst etc
+- мейн фандомыㅤpjsk , bangdream , hsr , ddlc , cookie run , csm , squid game , milgram , nso , alnst etc
  
-
-
-вы можете спокойно подсаживаться ко мне или шептать в личку :3 byf вся нужная информация обо мне есть в инфо ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ .ᅠᅠ𖹭
+- вы можете спокойно подсаживаться ко мне или шептать в личку :3 byf вся нужная информация обо мне есть в инфо ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ .ᅠᅠ𖹭
