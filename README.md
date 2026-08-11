@@ -1,1 +1,1 @@
-(https://files.catbox.moe/672tld.png)
+не могу у мя хуйня получается
